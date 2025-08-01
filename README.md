@@ -69,7 +69,9 @@ Finding **cheap industrial supplies USA** doesn’t mean sacrificing quality. We
 
 ## Contact Us Today for All Your Industrial Supplies Needs
 
-Ready to buy industrial supplies online in the USA? Contact us to learn more about our extensive inventory and wholesale pricing options.
+Ready to buy industrial supplies online in the USA? 
+
+Contact [Adibuja](https://www.adibuja.com/) to learn more about our extensive inventory and wholesale pricing options.
 
 ---
 
